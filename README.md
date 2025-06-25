@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Bayu Asrori (@bayuasrori)
+# 👋 Hi, I’m Riris Bayu Asrori (@bayuasrori)
 
 📍 Semarang, Indonesia · Software Developer
 
